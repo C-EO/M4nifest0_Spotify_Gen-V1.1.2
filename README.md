@@ -61,8 +61,6 @@ Usage of ScreenSpy for attacking targets without prior mutual consent is illegal
 ##### Sales of training and security software
 - 🛄 Privet tutorials and scripts 🈂️  https://M4nifest0.com 🈂️
 
-### Key
-- This text must be read [KEY]
 
 ##### See Training 
 

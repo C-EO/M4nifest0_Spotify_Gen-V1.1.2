@@ -16,59 +16,28 @@
 - 📌 Generator bank is used.
 - 📌 A private proxy is used in this tool.
 
-# ![Locations](https://github.com/attakercyebr/hack4lx_Spotify_gen/blob/master/photo_2020-04-03_13-49-45.png) 
-
-
-# ![Locations](https://github.com/attakercyebr/hack4lx_Spotify_gen/blob/master/photo_2020-04-03_13-49-4445.png) 
-
-
-# ![Locations](https://github.com/attakercyebr/hack4lx_Spotify_gen/blob/master/photo_2020-04-03_13-49-4u445.png) 
-
-
-##### Program features #####
+# Disclaimer:
 ----------------------
-- 📌 Crack the Spotify site account with the new method.
-- 📌 without combo and durk, easily extract the account and earn money from it. 
+- 📌 This tool is designed and developed for professionals and researchers. So do not target others and do not test them for no reason :)
 
-### Applicable on:
-<p align="center">	
-</a>&nbsp;&nbsp;&nbsp;&nbsp;
-	<a href="https://m4nifest0.com">
-		<img src="https://img.shields.io/badge/Android-3DDC84?logo=android&logoColor=white&style=for-the-badge" />
-<a href="https://m4nifest0.com">
-		<img src="https://img.shields.io/badge/iOS-000000?logo=ios&logoColor=white&style=for-the-badge" />
-	<a href="https://m4nifest0.com">
-		<img src="https://img.shields.io/badge/windows-0078D6?logo=windows&logoColor=white&style=for-the-badge" />
-		<a href="https://m4nifest0.com">
-		<img src="https://img.shields.io/badge/ubuntu-E95420?logo=ubuntu&logoColor=white&style=for-the-badge" />
-			<a href="https://m4nifest0.com">
-		<img src="https://img.shields.io/badge/linuxmint-87CF3E?logo=linux-mint&logoColor=white&style=for-the-badge" />
-				<a href="https://m4nifest0.com">
-		<img src="https://img.shields.io/badge/arch-1793D1?logo=arch-linux&logoColor=white&style=for-the-badge" />
-					
-					
-## Legal disclaimer:
+# See how it works v1.0.0
+----------------------
+- 🔞 v1.1.1 http://shorturl.at/wGVX4
+- 🔞 V1.2.2 http://shorturl.at/avBG9
+- 🔞 V1.2.3 https://youtu.be/bU3tBS46Ivc
 
-Usage of ScreenSpy for attacking targets without prior mutual consent is illegal. It's the end user's responsibility to obey all applicable local, state and federal laws. Developers assume no liability and are not responsible for any misuse or damage caused by this program 
+# How to ger:
+----------------------
+- 📌 Visit our channel or our site to download .
 
-### Buy this application:
-- 🦠 https://m4nifest0.com/
-
-### Getting chat source
-#### How to use :
-- 👍Watch the tutorial video first
-
-##### Sales of training and security software
-- 🛄 Privet tutorials and scripts 🈂️  https://M4nifest0.com 🈂️
-
-
-##### See Training 
-
-- 🔞 See Training 🎥 https://www.youtube.com/watch?v=d4iQnv6_OqE&feature=youtu.be  🎥
+- 🔞 https://m4nifest0.com
+- 🔞 https://m4nifest0.group
+- 🔞 https://m4nifest0.shop
+- 🔞 https://t.me/M4nifest0
 
 ----------------------
 
-<h2>🌐 Follow (bad boys) in virtual networks 📍</h2>
+<h2>- 📌 Get the tool via the links below</h2>
 <p align="center">	
 </a>&nbsp;&nbsp;&nbsp;&nbsp;
 	<a href="https://t.me/M4nifest0">
@@ -77,7 +46,7 @@ Usage of ScreenSpy for attacking targets without prior mutual consent is illegal
 	<a href="https://www.instagram.com/_m4nifest0_/">
 		<img src="https://img.shields.io/badge/instagram-%23E4405F.svg?&style=for-the-badge&logo=instagram&logoColor=white" />
 	</a>&nbsp;&nbsp;&nbsp;&nbsp;
-	<a href="https://www.youtube.com/c/cybermonitoringhack4lx">
+	<a href="https://www.youtube.com/c/hack4lx">
 		<img src="https://img.shields.io/badge/youtube-%23FF0000.svg?&style=for-the-badge&logo=youtube&logoColor=white" />
 	</a>&nbsp;&nbsp;&nbsp;&nbsp;
 	<a href="https://twitter.com/_M4nifest0_">
@@ -88,7 +57,7 @@ Usage of ScreenSpy for attacking targets without prior mutual consent is illegal
 	</a>&nbsp;&nbsp;&nbsp;&nbsp;
 </p>
 
-<h2>📌 Our team specializes in the following programming languages:...</h2>
+<h2>📌 Our team specializes in the following programming languages:...</h2> 
 <p align="center">	
 	<img src="https://img.shields.io/badge/node.js%20-%2343853D.svg?&style=for-the-badge&logo=node.js&logoColor=white" />
         <img src="https://img.shields.io/badge/python%20-%2314354C.svg?&style=for-the-badge&logo=python&logoColor=white" />

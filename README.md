@@ -37,11 +37,9 @@
 ----------------------
 - 📌 This tool is designed and developed for professionals and researchers. So do not target others and do not test them for no reason :)
 
-# See how it works v1.0.0
+# See how it works
 ----------------------
-- 🔞 v1.1.1 http://shorturl.at/wGVX4
-- 🔞 V1.2.2 http://shorturl.at/avBG9
-- 🔞 V1.2.3 https://youtu.be/bU3tBS46Ivc
+- 🔞 v1.1.2 https://www.youtube.com/watch?v=1B2Q4sYHfho
 
 # How to ger:
 ----------------------

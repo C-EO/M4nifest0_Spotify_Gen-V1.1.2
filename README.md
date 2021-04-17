@@ -7,13 +7,21 @@
 # Update \tools  v1.1.0 To V1.1.2
 
 - 📌 Python +3..9.0 programming language is used.
+
 - 📌 Use of public libraries.
+
 - 📌 Two libraries added.
+
 - 📌 Trade more.
+
 - 📌 Reported cases have been resolved.
+
 - 📌 Performance improvements.
+
 - 📌 Reset the codes.
+
  -📌 diagnosis.
+ 
 - 👇 V1.1.2👇
 - 📌 Fixed some bugs.
 - 📌 Fixed the speed problem.
